@@ -1,0 +1,1 @@
+# shimashop12-lab.github.io
